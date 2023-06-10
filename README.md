@@ -1,0 +1,2 @@
+# Shisui
+SHISUI Uchiha
